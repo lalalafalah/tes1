@@ -3,4 +3,4 @@ lhcsih afgan
 SEMANGAT 
 hbcdhwbw
 changes
-jum'at berkah
+your day
